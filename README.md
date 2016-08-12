@@ -24,6 +24,6 @@ Dann können je nach Level einfache Grundformen thematisiert werden oder auch ak
 
 Im letzten Drittel der Stunde werden die vorher geübten Bewegungen zu Sequenzen kombiniert. Es gibt Spielraum für individuelle Interpretation der Musik und für das Variieren des eigenen Timings.
 
-Am Ende Schluss wird gedehnt und entspannt.
+Am Schluss wird gedehnt und entspannt.
 
 In dieser Stunde geht es darum, konzentriert und bewusst mit dem Körper zu arbeiten und die eigene Energie effizient einzusetzen; zu einer fliessenden und dynamischen Bewegungssprache zu finden; Kraft zu entwickeln und Anstrengung zu reduzieren, z.B. indem die Schwerkraft als Bewegungsimpuls genutzt wird.
