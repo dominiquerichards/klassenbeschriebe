@@ -22,7 +22,7 @@ Mit weiteren Übungen kommt der Körper schrittweise weg vom Boden in die Vertik
 
 Dann können je nach Level einfache Grundformen thematisiert oder auch akrobatische Bewegungen wie Handstand, Rad und verschiedene Sprünge geübt werden.
 
-Im letzten Drittel der Stunde werden die vorher geübten Bewegungen zu Sequenzen kombiniert. Es gibt Spielraum für individuelle Interpretation der Musik und für das Variieren des eigenen Timings.
+Im letzten Drittel der Stunde werden die vorher geübten Bewegungen zu einer Sequenz kombiniert. Es gibt Spielraum für individuelle Interpretation der Musik und für das Variieren des eigenen Timings.
 
 Am Schluss wird gedehnt und entspannt.
 
