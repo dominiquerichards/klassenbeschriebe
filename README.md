@@ -20,7 +20,7 @@ Zu Beginn wird der Körper aufgewärmt, mit fortlaufenden Bodenbewegungen durch 
 
 Mit weiteren Übungen kommt der Körper schrittweise weg vom Boden in die Vertikale.
 
-Dann können je nach Level einfache Grundformen thematisiert werden oder auch akrobatische Bewegungen wie Handstand, Rad und [Flic], sowie verschiedene Sprünge geübt werden.
+Dann können je nach Level einfache Grundformen thematisiert oder auch akrobatische Bewegungen wie Handstand, Rad und verschiedene Sprünge geübt werden.
 
 Im letzten Drittel der Stunde werden die vorher geübten Bewegungen zu Sequenzen kombiniert. Es gibt Spielraum für individuelle Interpretation der Musik und für das Variieren des eigenen Timings.
 
