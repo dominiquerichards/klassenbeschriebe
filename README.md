@@ -16,7 +16,7 @@ Die Stufe der Teilnehmer ist unerheblich. Die Stunde ist offen genauso für alle
 
 ## Zeitgenössisch
 
-Zu Beginn wird der Körper aufgewärmt, mit fortlaufenden Bodenbewegungen durch den ganzen Raum. Die Wahrnehmung wird auf den eigenen Körper gelenkt.
+Zu Beginn wird der Körper aufgewärmt, mit fortlaufenden Bodenbewegungen durch den Raum. Die Konzentration wird so auf den eigenen Körper gerichtet.
 
 Mit weiteren Übungen kommt der Körper schrittweise weg vom Boden in die Vertikale.
 
